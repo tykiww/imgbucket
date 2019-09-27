@@ -1,1 +1,1 @@
-### Bayesian vs. Frequentist Post
+### Bayesian vs. Frequentist Post Images
